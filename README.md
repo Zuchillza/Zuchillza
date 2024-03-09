@@ -1,4 +1,4 @@
 ### Hi there 👋
-data, social sciences, cattos and coffee
+data, social sciences, books, cattos and coffee
 
 🐱 + 👩🏻‍💻 + 🐱 = ❤️
